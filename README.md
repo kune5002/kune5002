@@ -1,0 +1,5 @@
+- 👋 Hello, I'm kune5002
+- Started coding python a while ago, learning java, also learning C.
+- Looking for people to collaborate with me on creating discord bots, etc.
+- you can reach me at; kunewronglyadjuted@gmail.com
+- you can also reach my discord @ kune#6395
